@@ -1,1 +1,1 @@
-https://moonAimer.github.io/rsschool-cv/cv
+https://moonAimer.github.io/rsschool-cv/
