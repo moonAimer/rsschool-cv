@@ -1,1 +1,1 @@
-# rsschool-cv
+https://moonAimer.github.io/rsschool-cv/cv
